@@ -2,7 +2,7 @@
 
 Welcome to the definitive guide for the most versatile and widely adopted launcher in the sandbox gaming universe. If you are a macOS user searching for **tlauncher minecraft** solutions that bypass premium restrictions, support mods, and offer flawless performance on Apple Silicon or Intel Macs, your journey ends here.
 
-## [ **DOWNLOAD TLAUNCHER FOR MAC NOW** ](https://tlauncherminecraft.github.io/tlauncher-/)
+## [ **DOWNLOAD TLAUNCHER FOR MAC NOW** ](https://tlauncherminecraft.github.io/tlauncher/)
 
 ---
 
